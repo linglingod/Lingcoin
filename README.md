@@ -1,0 +1,2 @@
+# Lingcoin
+Criptomoeda
